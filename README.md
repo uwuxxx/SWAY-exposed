@@ -55,9 +55,21 @@ Also when **saying we love god** in his status thing or wtf but here is somethin
 - Exodus 22:21: “Do not mistreat or oppress a foreigner, for you were foreigners in Egypt. I am the LORD your God.” This commandment underscores the moral obligation to protect and respect immigrants.
 
 
-# OBAMA
-*Obama was a good presdient, he only **DEPORTED** crimials. Not a mother of two that works her ass off all day for **TWO** kids
-Trump will never be an good president, **NEVER**
+
+
+
+# CODE ISSUE?}
+
+<img width="293" height="73" alt="Screenshot 2026-03-05 194137" src="https://github.com/user-attachments/assets/8a173bde-8d92-4026-b2f5-0a7708529994" />
+
+This kid asked for code of line of C#, i gave it then this bitch shows up.
+
+<img width="504" height="183" alt="image" src="https://github.com/user-attachments/assets/aa5b470e-06c8-4482-933a-8207075e7083" />
+
+
+# PRESIDENTAL ISSUES
+*Obama was a good presdient, he only **DEPORTED** crimials. Not a mother of two that works her ass off all day for **TWO** kids.
+Trump will never be an good president, **NEVER** including in the, **BIG EPSTEIN FILES!?!**
 
 <img width="406" height="447" alt="Screenshot 2026-03-05 170125" src="https://github.com/user-attachments/assets/c68d21f8-5ba2-490b-acf3-5fe994918aac" />
 
