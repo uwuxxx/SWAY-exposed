@@ -74,7 +74,7 @@ Also when **saying we love god** in his status thing or wtf but here is somethin
 
 
 
-# CODE ISSUE?}
+# CODE ISSUE?
 
 <img width="293" height="73" alt="Screenshot 2026-03-05 194137" src="https://github.com/user-attachments/assets/8a173bde-8d92-4026-b2f5-0a7708529994" />
 
