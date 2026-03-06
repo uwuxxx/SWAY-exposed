@@ -37,10 +37,12 @@ these shows him being an bitch
 Never assume before you know, because in this case this happened.
 
 Below ***shh immigrant***, was there but he deleted it.
-And also, he calls others skid but we dont know if he is and also has **ASS** projects like gemini but named after an ai wouldn't be me
+And also, he calls others skid but we dont know if he is and also has **ASS** projects like gemini but named after an ai wouldn't be me.
 
-****Heres his profile:****
+****PROFILE:****
 Also when **saying we love god** in his status thing or wtf but here is something to remember in the bible.
+
+<img width="406" height="447" alt="Screenshot 2026-03-05 170125" src="https://github.com/user-attachments/assets/1a8efd3c-8319-41e1-97e1-984a08069bd9" />
 
 - Leviticus 19:34: “The foreigner residing among you must be treated as your native-born. Love them as yourself, for you were foreigners in Egypt. I am the LORD your God.” This verse highlights the importance of empathy and love towards immigrants, reminding us of our shared humanity.
 
