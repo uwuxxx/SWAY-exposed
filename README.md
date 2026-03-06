@@ -1,7 +1,7 @@
 
 
+# EXPOSING HAYDEN
 
-Exposing @theyluvhayden
 discord is - @theyluvhayden
 these shows him being an bitch
 
@@ -14,8 +14,48 @@ these shows him being an bitch
 
 
 
-***being racist because friend is spanish i think..***
+# being racist because my friend is spanish i think..
 
 
 <img width="505" height="224" alt="Screenshot 2026-03-05 170544" src="https://github.com/user-attachments/assets/79c67344-21e0-4a78-8279-60ddcfd7e2bf" />
+
+# not even explaining
+
+<img width="646" height="123" alt="Screenshot 2026-03-05 170017" src="https://github.com/user-attachments/assets/79d20c61-9846-4f35-b106-3f75c5b285df" />
+
+# assuming because of this?
+
+<img width="766" height="586" alt="Screenshot 2026-03-05 165904" src="https://github.com/user-attachments/assets/b32d30e8-bc62-4c38-9ea7-9b7145bb4fac" />
+
+# saying my friend is skid but i dont think so buddy
+
+<img width="757" height="558" alt="Screenshot 2026-03-05 165850" src="https://github.com/user-attachments/assets/31fde2f3-0540-45df-997c-bbcb216b6828" />
+
+#  reminder
+
+*Before this, in this image he said* ***go back from where u came from,*** I belive this coming straight to my friends, which **are** spanish and speak.
+Never assume before you know, because in this case this happened.
+
+Below ***shh immigrant***, was there but he deleted it.
+And also, he calls others skid but we dont know if he is and also has **ASS** projects like gemini but named after an ai wouldn't be me
+
+****Heres his profile:****
+Also when **saying we love god** in his status thing or wtf but here is something to remember in the bible.
+
+- Leviticus 19:34: “The foreigner residing among you must be treated as your native-born. Love them as yourself, for you were foreigners in Egypt. I am the LORD your God.” This verse highlights the importance of empathy and love towards immigrants, reminding us of our shared humanity.
+
+- Deuteronomy 10:19: “And you are to love those who are foreigners, for you yourselves were foreigners in Egypt. I am the LORD your God.” This reinforces the call to love and support those who are displaced, drawing from the shared experience of being strangers.
+
+- Matthew 25:35: “For I was hungry and you gave me something to eat, I was thirsty and you gave me something to drink, I was a stranger and you invited me in.” This verse emphasizes the importance of hospitality and care for those in need, including immigrants.
+
+- Hebrews 13:2: “Do not forget to show hospitality to strangers, for by so doing some people have shown hospitality to angels without knowing it.” This encourages believers to be welcoming and generous to all, including those who are new or different.
+
+- Exodus 22:21: “Do not mistreat or oppress a foreigner, for you were foreigners in Egypt. I am the LORD your God.” This commandment underscores the moral obligation to protect and respect immigrants.
+
+
+# OBAMA
+*Obama was a good presdient, he only **DEPORTED** crimials. Not a mother of two that works her ass off all day for **TWO** kids
+Trump will never be an good president, **NEVER**
+
+<img width="406" height="447" alt="Screenshot 2026-03-05 170125" src="https://github.com/user-attachments/assets/c68d21f8-5ba2-490b-acf3-5fe994918aac" />
 
