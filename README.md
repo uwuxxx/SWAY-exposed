@@ -15,4 +15,4 @@ these shows him being an bitch
 
 
 ***being racist..***
-https://github.com/uwuxxx/SWAY-exposed/blob/main/Screenshot%202026-03-05%20170544.png?raw=true
+https://i.imgur.com/VNvIZtO.png
