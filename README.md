@@ -2,13 +2,15 @@
 
 # EXPOSING HAYDEN
 
-discord is - @theyluvhayden
+discord is - @vk.devv
 these shows him being an bitch
 
 
-@theyluvhayden is gay ..
+@vk.devv is gay ..
 
-
+Unexpected things happen i guess..
+So @vk.devv went on @theyluvhaydens account and did it, not hayden.
+and btw gemini is skid dont play
 
 
 # SCROLL DOWN!
