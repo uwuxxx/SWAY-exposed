@@ -8,9 +8,11 @@ these shows him being an bitch
 
 @vk.devv is gay ..
 
+# REROUTES
+
 Unexpected things happen i guess..
 So @vk.devv went on @theyluvhaydens account and did it, not hayden.
-and btw gemini is skid dont play
+and btw gemini is skid dont play, and also
 
 
 # SCROLL DOWN!
